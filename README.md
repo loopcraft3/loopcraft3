@@ -7,5 +7,5 @@
 💬 Always open to collaboration and learning new tech!
 
 ## 📫 Let's connect!
-[LinkedIn](www.linkedin.com/in/shrushtiWaghmare)  
+[LinkedIn](https://www.linkedin.com/in/shrushtiWaghmare)  
 📧 waghmareshrushti26@gmail.com
